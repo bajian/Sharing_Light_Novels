@@ -1,10 +1,10 @@
 # 小说资源分享列表
 - 长期维护更新。失效可以创建issue，看到就补
 - 没有夸克的也可以点进去，基本都有度盘备份链接
-- 保存链接也可以，会z/自动更新最新卷
+- 保存链接也可以，会自动更新最新卷
 ## 连载作品
 
-- [败犬女主太多了](https://pan.quark.cn/s/19b3df2311be)
+- [败犬女主太多了（败北女角太多了）](https://pan.quark.cn/s/19b3df2311be)
 - [不时轻声地以俄语遮羞的邻座艾莉同学](https://pan.quark.cn/s/8582bd2179a3)
 - [帮助了其他学校的冰姬，我们就此成为了朋友](https://pan.quark.cn/s/96ccfcf746ff)
 - [英雄王，为了穷尽武道而转生～而后成为世界最强见习骑士♀～](https://pan.quark.cn/s/aa75163c88cf)
@@ -289,3 +289,4 @@
 - [灼眼的夏娜](https://pan.quark.cn/s/9defaaf2af33)
 - [女装皇家教师](https://pan.quark.cn/s/e8f197c40fb7)
 - [处刑少女的生存之道](https://pan.quark.cn/s/dcc2770a3416)
+- [【完结】关于阴角死宅社畜的我，转生为森林之泉这档事～新工作是泉之女神～](https://pan.quark.cn/s/544082b99a96)
