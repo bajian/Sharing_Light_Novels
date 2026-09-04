@@ -21,6 +21,7 @@
 - [魔法科高校的劣等生+续篇+外传](https://pan.quark.cn/s/660ad5b6908d)
 - [魔劣和魔法人联社](https://pan.quark.cn/s/c52d5aeca948)
 - [寝取魔法使的冒险](https://pan.quark.cn/s/2d9da69928f6)
+- [乡下大叔成为剑圣～只是区区乡下剑术师傅，成大器的弟子们却不肯放过我～](https://pan.quark.cn/s/35ba0b169263)
 - [实教](https://pan.quark.cn/s/8c67e1c0161e)
 - [少女所不期望的英雄史诗](https://pan.quark.cn/s/68b053f6d0c7)
 - [虽然不太清楚不过我好像转生到异世界了](https://pan.quark.cn/s/1ff9a477bc74)
