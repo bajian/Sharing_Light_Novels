@@ -142,7 +142,6 @@
 - [泛而不精的我被逐出了勇者队伍](https://pan.quark.cn/s/2efd799d9c7a)
 - [范式寄生体](https://pan.quark.cn/s/1baa022d28e6)
 - [fsn和月姬](https://pan.quark.cn/s/49ebbe66c6a0)
-- [国王游戏](https://pan.quark.cn/s/fed2b7d1ea03)
 - [狗与剪刀必有用](https://pan.quark.cn/s/7aa68c25f342)
 - [黄金经验值](https://pan.quark.cn/s/6d8f748472e8)
 - [和没有信徒的神大人一起攻略异世界](https://pan.quark.cn/s/7154ecc1cba1)
@@ -292,3 +291,5 @@
 - [女装皇家教师](https://pan.quark.cn/s/e8f197c40fb7)
 - [处刑少女的生存之道](https://pan.quark.cn/s/dcc2770a3416)
 - [【完结】关于阴角死宅社畜的我，转生为森林之泉这档事～新工作是泉之女神～](https://pan.quark.cn/s/544082b99a96)
+- [国王游戏](https://pan.quark.cn/s/fed2b7d1ea03)
+
