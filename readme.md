@@ -35,6 +35,7 @@
 - [我是星际国家的恶德领主](https://pan.quark.cn/s/6f8451586249)
 - [我心爱之人的妹妹](https://pan.quark.cn/s/964c77897e56)
 - [物语系列](https://pan.quark.cn/s/17f390cd7ca0)
+- [魔法使之夜](https://pan.quark.cn/s/f639d7bbd365)
 - [香格里拉开拓异境～粪作猎手挑战神作～](https://pan.quark.cn/s/348818675aa5)
 - [想要成为影之实力者](https://pan.quark.cn/s/efd4a3b66b47)
 - [月光下的异世界之旅](https://pan.quark.cn/s/6d0a7bad14cb)
