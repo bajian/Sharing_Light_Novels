@@ -249,6 +249,8 @@
 - [[完结]我的妹妹哪有这么可爱](https://pan.quark.cn/s/ffa7dc9e770e)
 - [[完结]我的朋友很少](https://pan.quark.cn/s/8818c8b00cec)
 - [[完结]我和女友的妹妹接吻了](https://pan.quark.cn/s/549e020c6451)
+- [【完结 】万能鉴定士Q事件簿](https://pan.quark.cn/s/de18a0e0b657)
+- [【完结】星刻龙骑士](https://pan.quark.cn/s/8dbdb9517193)
 - [[完结]为了女儿，我说不定连魔王都能干掉](https://pan.quark.cn/s/0d27e1275bd8)
 - [[完结]无人岛生存十六人](https://pan.quark.cn/s/bb07c66a3d18)
 - [[完结]我要成为双马尾](https://pan.quark.cn/s/19ec2a57706b)
