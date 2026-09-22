@@ -1,7 +1,7 @@
 # 小说资源分享列表
 - 长期维护更新。失效可以创建issue，看到就补
 - 没有夸克的也可以点进去，基本都有度盘备份链接
-- 保存链接也可以，会自动更新最新卷
+- 可保存网盘链接，后面会自动更新最新卷
 ## 连载作品
 
 - [败犬女主太多了（败北女角太多了）](https://pan.quark.cn/s/19b3df2311be)
@@ -12,6 +12,7 @@
 - [埃罗芒阿老师](https://pan.quark.cn/s/35c9fdfe92eb)
 - [百合侠 在男性禁入的游戏世界里，我唯一该做的事情](https://pan.quark.cn/s/50e5f6afe7e1)
 - [沉默魔女的秘密](https://pan.quark.cn/s/019619b5a082)
+- [这就是魔法使的王牌 小魔禁作者](https://pan.quark.cn/s/3eef2988f8f8)
 - [弹珠汽水瓶里的千岁同学](https://pan.quark.cn/s/118603432980)
 - [泛而不精的我被逐出了勇者队伍](https://pan.quark.cn/s/fd960ac5deb5)
 - [公爵千金的家庭教师](https://pan.quark.cn/s/2ab851bb8b6c)
@@ -212,6 +213,7 @@
 ## 完结作品
 
 - [[完结]尸恋](https://pan.quark.cn/s/e24204919603)
+- [【完结】被杀后被扔到井里的作弊怨灵，被不受欢迎的勇者和后宫美少女们欺负！](https://pan.quark.cn/s/eea95f5522e9)
 - [[完结]我们的悖论](https://pan.quark.cn/s/11f67646b35d)
 - [[完结]欢迎加入NHK！](https://pan.quark.cn/s/16ecd78dd5dd)
 - [[完结]笨蛋，测验，召唤兽](https://pan.quark.cn/s/81a9d652eec7)
