@@ -208,11 +208,14 @@
 - [转校后遇到的清纯可爱美少女，是我曾经误当男生一起玩的青梅竹马](https://pan.quark.cn/s/0e82672f80c5)
 - [在异世界获得超强能力的我，在现实世界照样无敌～等级提升改变人生命运～](https://pan.quark.cn/s/57b66f7869c9)
 - [《说出这边交给我你们先走以后十年过去成了传说。》](https://pan.quark.cn/s/c014833ac39f)
+- [狱门抚子在此](https://pan.quark.cn/s/c363f6ae9895)
 
 
 ## 完结作品
 
 - [[完结]尸恋](https://pan.quark.cn/s/e24204919603)
+- [初始攻击力为零的剑圣谭](https://pan.quark.cn/s/d348aff4216a)
+- [【完结】声优广播的幕前幕后(声优广播的台前幕后)](https://pan.quark.cn/s/76736b81d0ea)
 - [【完结】被杀后被扔到井里的作弊怨灵，被不受欢迎的勇者和后宫美少女们欺负！](https://pan.quark.cn/s/eea95f5522e9)
 - [[完结]我们的悖论](https://pan.quark.cn/s/11f67646b35d)
 - [[完结]欢迎加入NHK！](https://pan.quark.cn/s/16ecd78dd5dd)
