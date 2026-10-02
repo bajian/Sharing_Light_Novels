@@ -8,6 +8,7 @@
 - [不时轻声地以俄语遮羞的邻座艾莉同学](https://pan.quark.cn/s/8582bd2179a3)
 - [帮助了其他学校的冰姬，我们就此成为了朋友](https://pan.quark.cn/s/96ccfcf746ff)
 - [英雄王，为了穷尽武道而转生～而后成为世界最强见习骑士♀～](https://pan.quark.cn/s/aa75163c88cf)
+- [魔法★探险家 转生为成人游戏万年男二又怎样，我要活用游戏知识自由生活(奇幻探险者)](https://pan.quark.cn/s/e29104906401)
 - [安达与岛村](https://pan.quark.cn/s/f5cd57a9a57b)
 - [埃罗芒阿老师](https://pan.quark.cn/s/35c9fdfe92eb)
 - [百合侠 在男性禁入的游戏世界里，我唯一该做的事情](https://pan.quark.cn/s/50e5f6afe7e1)
@@ -23,7 +24,7 @@
 - [魔劣和魔法人联社](https://pan.quark.cn/s/c52d5aeca948)
 - [寝取魔法使的冒险](https://pan.quark.cn/s/2d9da69928f6)
 - [乡下大叔成为剑圣～只是区区乡下剑术师傅，成大器的弟子们却不肯放过我～](https://pan.quark.cn/s/35ba0b169263)
-- [实教](https://pan.quark.cn/s/8c67e1c0161e)
+- [实教 欢迎来到实力至上主义的教室](https://pan.quark.cn/s/8c67e1c0161e)
 - [少女所不期望的英雄史诗](https://pan.quark.cn/s/68b053f6d0c7)
 - [虽然不太清楚不过我好像转生到异世界了](https://pan.quark.cn/s/1ff9a477bc74)
 - [水属性的魔法师](https://pan.quark.cn/s/e17de9d17804)
@@ -213,7 +214,10 @@
 
 ## 完结作品
 
+- [说谎的男孩与坏掉的女孩](https://pan.quark.cn/s/d119e9a36e45)
 - [[完结]尸恋](https://pan.quark.cn/s/e24204919603)
+- [《听到涛声(海潮之声)》](https://pan.quark.cn/s/d49efc862768)
+- [【完结】我和你的半径之间](https://pan.quark.cn/s/020cf9db20b6)
 - [初始攻击力为零的剑圣谭](https://pan.quark.cn/s/d348aff4216a)
 - [【完结】声优广播的幕前幕后(声优广播的台前幕后)](https://pan.quark.cn/s/76736b81d0ea)
 - [【完结】被杀后被扔到井里的作弊怨灵，被不受欢迎的勇者和后宫美少女们欺负！](https://pan.quark.cn/s/eea95f5522e9)
