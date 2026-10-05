@@ -1,6 +1,6 @@
-# 小说资源分享列表
-- 长期维护更新。失效可以创建issue，看到就补
-- 没有夸克的也可以点进去，基本都有度盘备份链接
+# 轻小说资源分享列表
+- 长期维护更新。失效可创建issue，看到就补
+- 没夸克的也可点进去，基本都有度盘备份链接
 - 可保存网盘链接，后面会自动更新最新卷
 ## 连载作品
 
@@ -9,6 +9,7 @@
 - [帮助了其他学校的冰姬，我们就此成为了朋友](https://pan.quark.cn/s/96ccfcf746ff)
 - [英雄王，为了穷尽武道而转生～而后成为世界最强见习骑士♀～](https://pan.quark.cn/s/aa75163c88cf)
 - [魔法★探险家 转生为成人游戏万年男二又怎样，我要活用游戏知识自由生活(奇幻探险者)](https://pan.quark.cn/s/e29104906401)
+- [转生后的大圣女，极力隐瞒圣女的身分](https://pan.quark.cn/s/d76bd1213810)
 - [安达与岛村](https://pan.quark.cn/s/f5cd57a9a57b)
 - [埃罗芒阿老师](https://pan.quark.cn/s/35c9fdfe92eb)
 - [百合侠 在男性禁入的游戏世界里，我唯一该做的事情](https://pan.quark.cn/s/50e5f6afe7e1)
@@ -17,6 +18,7 @@
 - [弹珠汽水瓶里的千岁同学](https://pan.quark.cn/s/118603432980)
 - [泛而不精的我被逐出了勇者队伍](https://pan.quark.cn/s/fd960ac5deb5)
 - [公爵千金的家庭教师](https://pan.quark.cn/s/2ab851bb8b6c)
+- [二分之一的生命 实教作者新作](https://pan.quark.cn/s/4f1d20c7946e)
 - [精灵幻想记](https://pan.quark.cn/s/0f59b0b0edbd)
 - [加速世界](https://pan.quark.cn/s/bc2881d21eb9)
 - [靠超强人脉开始的摇人英雄谭](https://pan.quark.cn/s/df03d100b627)
@@ -31,8 +33,6 @@
 - [身为魔王的我娶了奴隶精灵为妻，该如何表白我的爱？](https://pan.quark.cn/s/4c2688dbb050)
 - [TS卫生兵的战场日记](https://pan.quark.cn/s/5d7bd4da7e33)
 - [叹息的亡灵想隐退](https://pan.quark.cn/s/4f14aaca111b)
-- [我独自升级](https://pan.quark.cn/s/a194881c2c6b)
-- [我和女友的妹妹接吻了](https://pan.quark.cn/s/b06a1c0a2f5a)
 - [我们不可能成为恋人！绝对不行。(※似乎可行？)](https://pan.quark.cn/s/500705be9379)
 - [我是星际国家的恶德领主](https://pan.quark.cn/s/6f8451586249)
 - [我心爱之人的妹妹](https://pan.quark.cn/s/964c77897e56)
@@ -60,8 +60,6 @@
 - [86-不存在的战区](https://pan.quark.cn/s/33d4f8386705)
 - [BAD事件簿](https://pan.quark.cn/s/7dacebb2794a)
 - [不吉波普系列](https://pan.quark.cn/s/77fb77c78b65)
-- [碧阳学园学生会议事录（学生会的一己之见）](https://pan.quark.cn/s/c96daaa9b9d0)
-- [电波女与青春男](https://pan.quark.cn/s/cb72c2259860)
 - [地错](https://pan.quark.cn/s/d9f6184d6a6f)
 - [刀剑神域](https://pan.quark.cn/s/e30d9fa46fc3)
 - [弹珠汽水瓶里的千岁同学](https://pan.quark.cn/s/79bdf6a3c239)
@@ -98,7 +96,6 @@
 - [玩乐关系](https://pan.quark.cn/s/58e107ad27fe)
 - [文学少女](https://pan.quark.cn/s/62bc69c55db5)
 - [无限斯特拉托斯 IS(Infinite Stratos)](https://pan.quark.cn/s/b6624db19759)
-- [无职转生](https://pan.quark.cn/s/ba34b7860564)
 - [小市民系列](https://pan.quark.cn/s/c40ab6b389a7)
 - [戏言系列](https://pan.quark.cn/s/29485c56d23e)
 - [约会大作战(DATE A LIVE)](https://pan.quark.cn/s/21d4044a01ab)
@@ -132,7 +129,6 @@
 - [差点在迷宫深处被信任的伙伴杀掉，但靠着天赐技能「无限扭蛋」获得等级9999的伙伴，我要向前队友和世界展开复仇＆「给他们好看！」](https://pan.quark.cn/s/aff2bbf4cbab)
 - [刺客守则(暗杀者的慈悲)](https://pan.quark.cn/s/21e559c89c11)
 - [才女的侍从(才女的近侍)](https://pan.quark.cn/s/498cbb22c5b3)
-- [超时空辉夜姬！](https://pan.quark.cn/s/b8f35299042c)
 - [春夏秋冬代行者](https://pan.quark.cn/s/7fdd34825cae)
 - [穿越进恋爱喜剧漫画，全力让我推的败犬女主角幸福](https://pan.quark.cn/s/584007e8aa6e)
 - [地狱模式～喜欢挑战特殊成就的玩家在废设定的异世界成为无双～](https://pan.quark.cn/s/7ec6d83cd081)
@@ -168,7 +164,6 @@
 - [拼死回避全灭结局。队伍的精神出了问题](https://pan.quark.cn/s/2afe2bac2111)
 - [七魔剑支配天下](https://pan.quark.cn/s/1880273932c9)
 - [强者的新传说](https://pan.quark.cn/s/c3a56f154f32)
-- [R.O.D(读或死)](https://pan.quark.cn/s/7cdd54d04b9d)
 - [神附体，杀手旋律。](https://pan.quark.cn/s/e471cb1676ec)
 - [世界最强后卫～迷宫国的新人探索者～](https://pan.quark.cn/s/7cc3b2c1cf56)
 - [虽然我被同年级两大美少女甩了，但不知为何她们似乎爱上我了](https://pan.quark.cn/s/1c178bb55db6)
@@ -178,12 +173,10 @@
 - [时薪三百圆的死神](https://pan.quark.cn/s/73b9ea9cae19)
 - [沙耶之歌](https://pan.quark.cn/s/022e2d99b41d)
 - [The New Gate](https://pan.quark.cn/s/9083adc9cccf)
-- [天空的彼端](https://pan.quark.cn/s/729f32b3a0d6)
 - [TRPG玩家在异世界打造最强角色](https://pan.quark.cn/s/f2ab9acdf615)
 - [Undead Girl·Murder Farce(不死少女系列)](https://pan.quark.cn/s/c0fac752764a)
 - [我的网婆是超人气偶像 冰山美人的她在现实世界也想当我老婆](https://pan.quark.cn/s/0895ffdb7505)
 - [我们的『阅读理解』出错了](https://pan.quark.cn/s/789d88116460)
-- [卫斯理系列 全145本](https://pan.quark.cn/s/4e89b21910c4)
 - [虚构推理](https://pan.quark.cn/s/8985b9483721)
 - [喜欢爱情喜剧的主人公吗](https://pan.quark.cn/s/4a172a61f484)
 - [夏空与永远的未来，还有我们后续的恋情](https://pan.quark.cn/s/b64a66158258)
@@ -213,7 +206,15 @@
 
 
 ## 完结作品
-
+- [我独自升级](https://pan.quark.cn/s/a194881c2c6b)
+- [R.O.D(读或死)](https://pan.quark.cn/s/7cdd54d04b9d)
+- [卫斯理系列 全145本](https://pan.quark.cn/s/4e89b21910c4)
+- [我和女友的妹妹接吻了](https://pan.quark.cn/s/b06a1c0a2f5a)
+- [超时空辉夜姬！](https://pan.quark.cn/s/b8f35299042c)
+- [天空的彼端](https://pan.quark.cn/s/729f32b3a0d6)
+- [无职转生](https://pan.quark.cn/s/ba34b7860564)
+- [碧阳学园学生会议事录（学生会的一己之见）](https://pan.quark.cn/s/c96daaa9b9d0)
+- [电波女与青春男](https://pan.quark.cn/s/cb72c2259860)
 - [说谎的男孩与坏掉的女孩](https://pan.quark.cn/s/d119e9a36e45)
 - [[完结]尸恋](https://pan.quark.cn/s/e24204919603)
 - [《听到涛声(海潮之声)》](https://pan.quark.cn/s/d49efc862768)
