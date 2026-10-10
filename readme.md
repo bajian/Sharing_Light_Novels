@@ -8,7 +8,7 @@
 - [不时轻声地以俄语遮羞的邻座艾莉同学](https://pan.quark.cn/s/8582bd2179a3)
 - [帮助了其他学校的冰姬，我们就此成为了朋友](https://pan.quark.cn/s/96ccfcf746ff)
 - [英雄王，为了穷尽武道而转生～而后成为世界最强见习骑士♀～](https://pan.quark.cn/s/aa75163c88cf)
-- [魔法★探险家 转生为成人游戏万年男二又怎样，我要活用游戏知识自由生活(奇幻探险者)](https://pan.quark.cn/s/e29104906401)
+- [魔法★探险家 转生为成人游戏万年男二又怎样，我要活用游戏知识自由生活(奇幻探险者)](https://pan.baidu.com/s/5bu9kojRXteXd4-FLH_ICYw)
 - [转生后的大圣女，极力隐瞒圣女的身分](https://pan.quark.cn/s/d76bd1213810)
 - [安达与岛村](https://pan.quark.cn/s/f5cd57a9a57b)
 - [埃罗芒阿老师](https://pan.quark.cn/s/35c9fdfe92eb)
