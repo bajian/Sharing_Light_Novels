@@ -203,10 +203,13 @@
 - [在异世界获得超强能力的我，在现实世界照样无敌～等级提升改变人生命运～](https://pan.quark.cn/s/57b66f7869c9)
 - [《说出这边交给我你们先走以后十年过去成了传说。》](https://pan.quark.cn/s/c014833ac39f)
 - [狱门抚子在此](https://pan.quark.cn/s/c363f6ae9895)
+- [被勇者队伍开除的驯兽师，邂逅最强种的猫耳少女](https://pan.quark.cn/s/1678540048b5)
 
 
 ## 完结作品
 - [我独自升级](https://pan.quark.cn/s/a194881c2c6b)
+- [【完结】探索者](https://pan.quark.cn/s/4a2b1ac725ef)
+- [我将在明日逝去，而你将死而复生(明天，我会死去，你将重生)](https://pan.quark.cn/s/bbeb22fa3f86)
 - [R.O.D(读或死)](https://pan.quark.cn/s/7cdd54d04b9d)
 - [卫斯理系列 全145本](https://pan.quark.cn/s/4e89b21910c4)
 - [我和女友的妹妹接吻了](https://pan.quark.cn/s/b06a1c0a2f5a)
