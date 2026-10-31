@@ -204,10 +204,14 @@
 - [《说出这边交给我你们先走以后十年过去成了传说。》](https://pan.quark.cn/s/c014833ac39f)
 - [狱门抚子在此](https://pan.quark.cn/s/c363f6ae9895)
 - [被勇者队伍开除的驯兽师，邂逅最强种的猫耳少女](https://pan.quark.cn/s/1678540048b5)
+- [古典部系列(冰果) 冰菓](https://pan.quark.cn/s/d4ad6949e323)
 
 
 ## 完结作品
+- [装备我最强Overgeared](https://pan.quark.cn/s/83e5035b4c2e)
 - [我独自升级](https://pan.quark.cn/s/a194881c2c6b)
+- [【完结】你好，身为魔女的我，被心上人委托制作迷情药。](https://pan.quark.cn/s/66cb736dc551)
+- [9S 遗产尖兵](https://pan.quark.cn/s/fbab58a094c9)
 - [【完结】探索者](https://pan.quark.cn/s/4a2b1ac725ef)
 - [我将在明日逝去，而你将死而复生(明天，我会死去，你将重生)](https://pan.quark.cn/s/bbeb22fa3f86)
 - [R.O.D(读或死)](https://pan.quark.cn/s/7cdd54d04b9d)
