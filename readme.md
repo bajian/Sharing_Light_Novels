@@ -13,8 +13,10 @@
 - [安达与岛村](https://pan.quark.cn/s/f5cd57a9a57b)
 - [埃罗芒阿老师](https://pan.quark.cn/s/35c9fdfe92eb)
 - [百合侠 在男性禁入的游戏世界里，我唯一该做的事情](https://pan.quark.cn/s/50e5f6afe7e1)
+- [关于吃了魔兽肉就登上王位这档事](https://pan.quark.cn/s/9e37ad34faf2)
 - [沉默魔女的秘密](https://pan.quark.cn/s/019619b5a082)
 - [这就是魔法使的王牌 小魔禁作者](https://pan.quark.cn/s/3eef2988f8f8)
+- [新编古典恋心中](https://pan.quark.cn/s/377544610f1c)
 - [弹珠汽水瓶里的千岁同学](https://pan.quark.cn/s/118603432980)
 - [泛而不精的我被逐出了勇者队伍](https://pan.quark.cn/s/fd960ac5deb5)
 - [公爵千金的家庭教师](https://pan.quark.cn/s/2ab851bb8b6c)
@@ -205,6 +207,7 @@
 - [狱门抚子在此](https://pan.quark.cn/s/c363f6ae9895)
 - [被勇者队伍开除的驯兽师，邂逅最强种的猫耳少女](https://pan.quark.cn/s/1678540048b5)
 - [古典部系列(冰果) 冰菓](https://pan.quark.cn/s/d4ad6949e323)
+- [其实，我乃最强？](https://pan.quark.cn/s/3b70d4f351a3)
 
 
 ## 完结作品
@@ -214,6 +217,7 @@
 - [9S 遗产尖兵](https://pan.quark.cn/s/fbab58a094c9)
 - [【完结】探索者](https://pan.quark.cn/s/4a2b1ac725ef)
 - [我将在明日逝去，而你将死而复生(明天，我会死去，你将重生)](https://pan.quark.cn/s/bbeb22fa3f86)
+- [折断的龙骨](https://pan.quark.cn/s/5dc6999245b5)
 - [R.O.D(读或死)](https://pan.quark.cn/s/7cdd54d04b9d)
 - [卫斯理系列 全145本](https://pan.quark.cn/s/4e89b21910c4)
 - [我和女友的妹妹接吻了](https://pan.quark.cn/s/b06a1c0a2f5a)
